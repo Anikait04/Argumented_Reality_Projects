@@ -13,7 +13,6 @@ Immerse yourself in the dreamy world of aesthetics with our Motion Blur effect. 
 
 Achievements:
 
-Successfully uploaded to Meta account.
 Reaching a lifetime engagement of up to 830,000 accounts.
 Positive user feedback and engagement on social media platforms.
 Why Explore Our Repository:
